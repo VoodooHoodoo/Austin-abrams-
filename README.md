@@ -21,6 +21,13 @@ Jay Gardiner ❤️ (Whalefall)
 The kid ❤️ (Wolves)
 
 
+Ron Anderson ❤️ (TWD)
+
+
 Benjamin sterling 🧡 (papertowns)
 
-(and many MANY more, just Iwec and we’re chillin!)
+
+James Anthony 🧡 (Weapons)
+
+
+(and many MANY more, just Iwc and we’re chillin!)
