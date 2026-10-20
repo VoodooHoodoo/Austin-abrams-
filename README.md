@@ -1,5 +1,5 @@
-# Austin-abrams/Kins
-I like this guy!
+# Kins
+
 
 Hi hii! 
 (high priority kin ❤️)
