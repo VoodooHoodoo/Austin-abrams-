@@ -34,4 +34,10 @@ James Anthony 🧡 (Weapons)
 (and many MANY more, just Iwc and we’re chillin!)
 
 
-<img width="1080" height="1394" alt="IMG_2485" src="https://github.com/user-attachments/assets/0906acd1-5eb6-42f6-a0bb-db6fe1f6d8c7" />
+
+
+<img width="1200" height="1200" alt="IMG_2633" src="https://github.com/user-attachments/assets/cd70adf8-4089-473e-aa15-ed5afad5affc" />
+
+
+
+
