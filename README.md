@@ -36,7 +36,8 @@ James Anthony 🧡 (Weapons)
 
 
 
-<img width="1200" height="1200" alt="IMG_2633" src="https://github.com/user-attachments/assets/cd70adf8-4089-473e-aa15-ed5afad5affc" />
+<img width="800" height="337" alt="CC18BA7A-F0A4-43ED-9E9F-AF6DE3EA6752" src="https://github.com/user-attachments/assets/1e684386-6acd-4190-801a-9486f543a62e" />
+
 
 
 
