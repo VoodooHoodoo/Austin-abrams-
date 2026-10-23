@@ -1,7 +1,6 @@
 # Kins
 
 
-Hi hii! 
 
 
 (high priority kin ❤️) 
