@@ -24,10 +24,16 @@ The kid ❤️ (Wolves)
 Ron Anderson ❤️ (TWD)
 
 
+Dash Malloy ❤️ (Dash and Lilly)
+
+
 Benjamin sterling 🧡 (papertowns)
 
 
 James Anthony 🧡 (Weapons)
+
+
+
 
 
 (and many MANY more, just Iwc and we’re chillin!)
