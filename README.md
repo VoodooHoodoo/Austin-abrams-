@@ -8,7 +8,7 @@
 
 
 (medium priority 🧡)
-(^ IWEC if a kin ^)
+(^ IWEC if a double ^)
 
 
 (low priority 💛)
