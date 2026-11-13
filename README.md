@@ -4,37 +4,83 @@
 
 
 (high priority kin ❤️) 
-
+(^ Aka DNI Doubles ^)
 
 (medium priority 🧡)
+(^ IWEC if a kin ^)
 
 (low priority 💛)
-
+(Int FREELY!)
 
 I kin 
 
-Bryan Hudokavich ❤️ (resident Evil)
+
+❤️ • Resident Evil (2026) – Bryan Hodukavich
 
 
-Jay Gardiner ❤️ (Whalefall)
-
-The kid ❤️ (Wolves)
+❤️ • Wolfs (2024) – Kid
 
 
-Ron Anderson ❤️ (TWD)
+❤️ • Whalefall (2026) – Jay 
 
 
-Dash Malloy ❤️ (Dash and Lilly)
+❤️ • The Walking Dead (2015–2016) – Ron Anderson
 
 
-Benjamin sterling 🧡 (papertowns)
+❤️ • Dash & Lily (2020) – Dash 
+
+~
+
+🧡 • Paper Towns (2015) – Ben Starling
 
 
-James Anthony 🧡 (Weapons)
+🧡 • Weapons (2025) – James
+
+~
+
+💛 • Gangster Squad (2013) – Pete
 
 
+💛 • The Kings of Summer (2013) – Aaron
 
 
+💛 • Sacrifice (2014) – Tim
+
+
+💛 • All Summers End (2017) – Hunter Gorski
+
+
+💛 • Brad's Status (2017) – Troy Sloan
+
+
+💛 • Tragedy Girls (2017) – Craig Thompson
+
+
+💛 • We Don't Belong Here (2017)
+
+
+💛 • Puzzle (2018) – Gabe
+
+
+💛 • Dude (2018) – James
+
+
+💛 • Chemical Hearts (2020) – Henry Page
+
+
+💛 • Do Revenge (2022) – Max Broussard
+
+
+💛 • Mosquito (2022) – Colt Rossdale
+
+
+💛 • The Starling Girl (2023) – Ben Taylor
+
+
+💛 • The Americans
+
+
+^_^
 
 (and many MANY more, just Iwc and we’re chillin!)
 
