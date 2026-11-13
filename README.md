@@ -26,7 +26,7 @@ I kin
 
 
 
-❤️ • Whalefall (2026) – Jay 
+❤️ • Whalefall (2026) – Jay Gardiner
 
 
 
@@ -34,11 +34,13 @@ I kin
 
 
 
-❤️ • Dash & Lily (2020) – Dash 
+❤️ • Dash & Lily (2020) – Dash Malloy
 
 
 
 ~
+
+
 
 🧡 • Paper Towns (2015) – Ben Starling
 
@@ -52,7 +54,21 @@ I kin
 
 
 
+🧡 • Brad's Status (2017) – Troy Sloan
+
+
+
+🧡 • Chemical Hearts (2020) – Henry Page
+
+
+
+🧡 • Do Revenge (2022) – Max Broussard
+
+
+
 ~
+
+
 
 💛 • Gangster Squad (2013) – Pete
 
@@ -67,10 +83,6 @@ I kin
 
 
 💛 • All Summers End (2017) – Hunter Gorski
-
-
-
-💛 • Brad's Status (2017) – Troy Sloan
 
 
 
@@ -90,11 +102,7 @@ I kin
 
 
 
-💛 • Chemical Hearts (2020) – Henry Page
-
-
-
-💛 • Do Revenge (2022) – Max Broussard
+💛 • The Starling Girl (2023) – Ben Taylor
 
 
 
@@ -102,11 +110,8 @@ I kin
 
 
 
-💛 • The Starling Girl (2023) – Ben Taylor
-
-
-
 💛 • The Americans
+
 
 
 
