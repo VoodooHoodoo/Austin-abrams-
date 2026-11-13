@@ -48,6 +48,10 @@ I kin
 
 
 
+🧡 • Euphoria (2019–2024) – Ethan Lewis
+
+
+
 ~
 
 💛 • Gangster Squad (2013) – Pete
