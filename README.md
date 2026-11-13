@@ -46,6 +46,10 @@ I kin
 
 
 
+🧡 • SMILF (2017) – Casey
+
+
+
 🧡 • Weapons (2025) – James
 
 
@@ -63,6 +67,14 @@ I kin
 
 
 🧡 • Do Revenge (2022) – Max Broussard
+
+
+
+🧡 • The Line (2023) – Gettys O'Brien
+
+
+
+🧡 • This Is Us (2019–2021) – Marc McKeon
 
 
 
