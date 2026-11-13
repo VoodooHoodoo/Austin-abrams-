@@ -106,7 +106,7 @@ I kin
 
 
 
-💛 • We Don't Belong Here (2017) — Davey
+💛 • We Don't Belong Here (2017) – Davey
 
 
 
@@ -126,15 +126,14 @@ I kin
 
 
 
-💛 • The Americans — Jackson Barber
+💛 • The Americans – Jackson Barber
 
 
 
 
 ^_^
 
-(and many MANY more, just Iwc and we’re chillin!)
-
+(and many MANY more..)
 
 
 
