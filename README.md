@@ -11,14 +11,11 @@
 (^ IWEC if a double ^)
 
 
-(low priority 💛)
-(Int FREELY!)
 
-I kin 
+$\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$ 
 
 
-
-❤️ • Resident Evil (2026) – Bryan Hodukavich
+❤️ •  $\color{#E3000B}{Resident}$ $\color{#E3000B}{Evil}$ $\color{#E3000B}{(2026)}$ $\color{#A1483B}{-}$ $\color{#A1663B}{Bryan}$ $\color{#A1663B}{Hodukavich}$ 
 
 
 
@@ -82,54 +79,8 @@ I kin
 
 
 
+
 ~
-
-
-
-💛 • Gangster Squad (2013) – Pete
-
-
-
-💛 • The Kings of Summer (2013) – Aaron
-
-
-
-💛 • Sacrifice (2014) – Tim
-
-
-
-💛 • All Summers End (2017) – Hunter Gorski
-
-
-
-💛 • Tragedy Girls (2017) – Craig Thompson
-
-
-
-💛 • We Don't Belong Here (2017) – Davey
-
-
-
-💛 • Puzzle (2018) – Gabe
-
-
-
-💛 • Dude (2018) – James
-
-
-
-💛 • The Starling Girl (2023) – Ben Taylor
-
-
-
-💛 • Mosquito (2022) – Colt Rossdale
-
-
-
-💛 • The Americans – Jackson Barber
-
-
-
 
 ^_^
 
