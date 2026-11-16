@@ -43,7 +43,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-🧡 • $\color{#5D8B54}{Weapons}$ $\color{#91B05C}{(2025)}$ $\color{#A5D45F}{-}$ $\color{#B4FF4%}{James}$
+🧡 • $\color{#5D8B54}{Weapons}$ $\color{#91B05C}{(2025)}$ $\color{#A5D45F}{-}$ $\color{#B4FF45}{James}$
 
 
 
@@ -54,9 +54,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 🧡 • $\color{#7E8163}{The}$ $\color{#7E8163}{Line}$ $\color{#B0B579}{(2023)}$ $\color{#B5A679}{-}$ $\color{#AC985C}{Gettys}$ $\color{#AC985C}{O'Brien}$
 
 
-
-🧡 • Scary Stories to Tell in the Dark (2019) – Tommy Milner
-
+🧡 • $\color{#090F80}{Scary}$ $\color{#090F80}{Stories}$ $\color{#090F80}{to}$ $\color{#090F80}{Tell}$ $\color{#090F80}{in}$ $\color{#090F80}{the}$ $\color{#090F80}{Dark}$ $\color{#630980}{(2019)}$ $\color{#b00098}{-}$ $\color{#b00037}{Tommy}$ $\color{#b00037}{Milner.}$
 
 
 
@@ -64,7 +62,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 ^_^
 
-(and many MANY more..)
+$\color{#FDE4BC}{And}$ $\color{#FDE4BC}{many}$ $\color{#FDE4BC}{more}$ $\color{#FDE4BC}{...}$ 
 
 
 
