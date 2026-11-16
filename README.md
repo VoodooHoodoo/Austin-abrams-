@@ -43,11 +43,11 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-🧡 • Weapons (2025) – James
+🧡 • $\color{#5D8B54}{Weapons}$ $\color{#91B05C}{(2025)}$ $\color{#A5D45F}{-}$ $\color{#B4FF4%}{James}$
 
 
 
-🧡 • Euphoria (2019–2024) – Ethan Lewis
+🧡 • $\color{#CA44FF}{Euphoria}$ $\color{#E344FF}{2019-2024}$ $\color{#FF44FB}{-}$ $\color{#FF44D0}{Ethan}$ $\color{#FF44D0}{Lewis}$
 
 
 
