@@ -27,9 +27,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-
- $\color{#445F39}{The}$ $\color{#445F39}{Walking}$ $\color{#445F39}{Dead}$ $\color{#77783E}{(2015-2016)}$ $\color{#78583E}{-}$ $\color{#833234}{Ron}$ $\color{#833234}{Anderson}$ 
-❤️ • The Walking Dead (2015–2016) – Ron Anderson
+❤️ • $\color{#445F39}{The}$ $\color{#445F39}{Walking}$ $\color{#445F39}{Dead}$ $\color{#77783E}{(2015-2016)}$ $\color{#78583E}{-}$ $\color{#833234}{Ron}$ $\color{#833234}{Anderson}$ 
 
 
 
