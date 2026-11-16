@@ -31,7 +31,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-❤️ • $\color{#670014}{Dash}$ $\color{#670014}{&}$ $\color{#670014}{Lilly}$ $\color{#672400}{(2020)}$ $\color{#596700}{-}$ $\color{#006719}{Dash}$ $\color{#006719}{Malloy}$
+❤️ • $\color{#670014}{Dash}$ $\color{#670014}{and}$ $\color{#670014}{Lilly}$ $\color{#672400}{(2020)}$ $\color{#596700}{-}$ $\color{#006719}{Dash}$ $\color{#006719}{Malloy}$
 
 
 
