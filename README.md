@@ -39,7 +39,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-🧡 • Paper Towns (2015) – Ben Starling
+🧡 • $\color{#D0001B}{Paper}$ $\color{#D0001B}{Towns}$ $\color{#D00095}{(2015)}$ $\color{#A300D0}{-}$ $\color{#003BD0}{Ben}$ $\color{#003BD0}{Starling}$ 
 
 
 
