@@ -19,11 +19,12 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-❤️ • Wolfs (2024) – Kid
+❤️ • $\color{#616161}{Wolfs}$  $\color{#6B3E5D}{(2024)}$ $\color{#813759}{-}$ $\color{#BC278C}{Kid/Frankie}$
 
 
 
-❤️ • Whalefall (2026) – Jay Gardiner
+❤️ • $\color{#28324F}{Whalefall}$  $\color{#364774}{(2026)}$  $\color{#4F649D}{-}$  $\color{#789CFF}{Jay}$ $\color{#789CFF}{Gardiner}$
+
 
 
 
