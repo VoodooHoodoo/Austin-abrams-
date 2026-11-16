@@ -47,11 +47,11 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-🧡 • $\color{#CA44FF}{Euphoria}$ $\color{#E344FF}{2019-2024}$ $\color{#FF44FB}{-}$ $\color{#FF44D0}{Ethan}$ $\color{#FF44D0}{Lewis}$
+🧡 • $\color{#CA44FF}{Euphoria}$ $\color{#E344FF}{(2019-2024)}$ $\color{#FF44FB}{-}$ $\color{#FF44D0}{Ethan}$ $\color{#FF44D0}{Lewis}$
 
 
 
-🧡 • The Line (2023) – Gettys O'Brien
+🧡 • $\color{#7E8163}{The}$ $\color{#7E8163}{Line}$ $\color{#B0B579}{(2023)}$ $\color{#95A679}{-}$ $\color{#7E8163}{Gettys}$ $\color{#7E8163}{O'Brien}$
 
 
 
