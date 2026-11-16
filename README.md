@@ -28,6 +28,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
+ $\color{#445F39}{The}$ $\color{#445F39}{Walking}$ $\color{#445F39}{Dead}$ $\color{#77783E}{(2015-2016)}$ $\color{#78583E}{-}$ $\color{#833234}{Ron}$ $\color{#833234}{Anderson}$ 
 ❤️ • The Walking Dead (2015–2016) – Ron Anderson
 
 
@@ -44,10 +45,6 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-🧡 • SMILF (2017) – Casey
-
-
-
 🧡 • Weapons (2025) – James
 
 
@@ -56,23 +53,7 @@ $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$
 
 
 
-🧡 • Brad's Status (2017) – Troy Sloan
-
-
-
-🧡 • Chemical Hearts (2020) – Henry Page
-
-
-
-🧡 • Do Revenge (2022) – Max Broussard
-
-
-
 🧡 • The Line (2023) – Gettys O'Brien
-
-
-
-🧡 • This Is Us (2019–2021) – Marc McKeon
 
 
 
