@@ -15,7 +15,7 @@
 $\color{#FDE4BC}{I}$ $\color{#FDE4BC}{Kin}$ 
 
 
-❤️ •  $\color{#E3000B}{Resident}$ $\color{#E3000B}{Evil}$ $\color{#E3000B}{(2026)}$ $\color{#A1483B}{-}$ $\color{#A1663B}{Bryan}$ $\color{#A1663B}{Hodukavich}$ 
+❤️ •  $\color{#E3000B}{Resident}$ $\color{#E3000B}{Evil}$ $\color{#A1483B}{(2026)}$ $\color{#A1563B}{-}$ $\color{#A1663B}{Bryan}$ $\color{#A1663B}{Hodukavich}$ 
 
 
 
