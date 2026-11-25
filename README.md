@@ -66,6 +66,13 @@ $\color{#FDE4BC}{And}$ $\color{#FDE4BC}{many}$ $\color{#FDE4BC}{more}$ $\color{#
 
 
 
+
+
+
+<img width="200" height="200" alt="IMG_3480" src="https://github.com/user-attachments/assets/a1316421-d6a8-45ef-9d45-39406f94fb31" />
+
+
+
 <img width="800" height="337" alt="CC18BA7A-F0A4-43ED-9E9F-AF6DE3EA6752" src="https://github.com/user-attachments/assets/1e684386-6acd-4190-801a-9486f543a62e" />
 
 
